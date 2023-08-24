@@ -1,5 +1,3 @@
-Chapter 7: Creating Thought Leadership
-======================================
 
 Creating thought leadership is an essential component of building a strong personal brand and advancing your career. Thought leaders are recognized as experts in their field, and they have a powerful influence over the way people think and act. In this chapter, we will explore the steps you can take to create thought leadership in your industry.
 

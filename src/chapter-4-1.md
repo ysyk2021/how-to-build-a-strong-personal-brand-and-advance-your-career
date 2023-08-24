@@ -1,5 +1,3 @@
-Defining Your Target Audience
-=================================================================================
 
 Developing a strong personal brand requires a clear understanding of your target audience. Defining your target audience will help you tailor your messaging and positioning to resonate with the people who matter most to your career success.
 

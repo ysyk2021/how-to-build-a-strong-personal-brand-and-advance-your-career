@@ -1,5 +1,3 @@
-Developing a Content Strategy
-=================================================================================
 
 Developing a content strategy is an essential part of your personal brand strategy. In this chapter, we will explore how to develop a content strategy that aligns with your personal brand and supports your professional goals.
 

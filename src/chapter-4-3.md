@@ -1,5 +1,3 @@
-Choosing Your Communication Channels
-========================================================================================
 
 Choosing the right communication channels is an essential part of your personal brand strategy. In this chapter, we will explore how to choose the best communication channels for your personal brand.
 

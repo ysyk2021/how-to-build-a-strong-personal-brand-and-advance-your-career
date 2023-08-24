@@ -1,5 +1,3 @@
-Managing Your Online Reputation
-=========================================================================
 
 In this chapter, we will discuss the importance of managing your online reputation when building your online presence. Your online reputation is the image and perception that others have of you based on your online activity. It can impact your personal brand and career advancement.
 
