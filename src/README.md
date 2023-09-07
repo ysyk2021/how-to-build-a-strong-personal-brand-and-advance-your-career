@@ -10,3 +10,7 @@ Finally, the third section of the book offers practical strategies and tools for
 Overall, this book aims to provide readers with the knowledge and tools necessary to build a strong personal brand and advance their careers. By focusing on the key elements of personal branding and implementing effective strategies, individuals can establish themselves as experts in their field, build strong relationships with others in their industry, and achieve greater success and fulfillment in their careers.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
