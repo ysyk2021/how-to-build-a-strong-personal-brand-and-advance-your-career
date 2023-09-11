@@ -1,5 +1,4 @@
-Chapter 3: Understanding Your Strengths, Skills, and Expertise
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to build a strong personal brand and advance your career, it is crucial to have a deep understanding of your strengths, skills, and expertise. Recognizing and leveraging these qualities will help you stand out from the competition and position yourself as a valuable asset in your industry. This chapter will guide you through the process of understanding and harnessing your unique abilities.
 

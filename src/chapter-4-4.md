@@ -1,5 +1,4 @@
-Chapter 4: Developing a Content Strategy
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, an effective content strategy is essential for building a strong personal brand and advancing your career. This chapter will guide you through the process of developing a content strategy that aligns with your personal brand and engages your target audience.
 

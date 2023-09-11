@@ -1,5 +1,4 @@
-Chapter 6: Managing Your Online Reputation
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, managing your online reputation is essential for building a strong personal brand and advancing your career. The internet provides a platform for individuals to express their opinions and share experiences, making it crucial to actively monitor and maintain a positive online image. This chapter will guide you through the strategies and best practices for managing your online reputation effectively.
 

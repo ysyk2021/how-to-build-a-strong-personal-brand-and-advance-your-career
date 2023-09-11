@@ -1,5 +1,4 @@
-Chapter 4: Defining Your Target Audience
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Defining your target audience is a crucial step in building a strong personal brand and advancing your career. By understanding who your audience is, you can tailor your messaging, content, and branding efforts to effectively reach and resonate with the right people. In this chapter, we will explore strategies and techniques to help you define your target audience and create a focused approach to building your personal brand.
 

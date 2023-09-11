@@ -1,5 +1,4 @@
-Chapter 6: Creating Brand Alignment Between Personal and Business Brands
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the previous chapters, we explored the importance of personal branding and leveraging it for business success. In this chapter, we will delve into the concept of creating brand alignment between your personal brand and your business brand. By aligning these two brands, you can amplify their impact, build a strong reputation, and drive both personal and business growth.
 

@@ -1,5 +1,4 @@
-Chapter 5: The Importance of Networking in Career Advancement
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Networking is a vital component of building a strong personal brand and advancing your career. It involves actively connecting with professionals, expanding your circle of influence, and cultivating relationships that can open doors to new opportunities. In this chapter, we will explore the importance of networking in career advancement and provide strategies for effective networking.
 

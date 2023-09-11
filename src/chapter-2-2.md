@@ -1,5 +1,4 @@
-Chapter 3: The Importance of Personal Branding in Career Development
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Personal branding plays a significant role in advancing your career and achieving long-term success. In this chapter, we will explore the importance of personal branding in shaping your professional trajectory.
 

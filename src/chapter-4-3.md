@@ -1,5 +1,4 @@
-Chapter 8: Choosing Your Communication Channels
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital era, selecting the right communication channels is crucial for building a strong personal brand and advancing your career. The channels you choose determine how you connect with your target audience, convey your message, and establish your online presence. In this chapter, we will explore considerations and strategies for choosing the most effective communication channels.
 

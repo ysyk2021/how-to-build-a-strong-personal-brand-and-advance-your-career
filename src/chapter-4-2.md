@@ -1,5 +1,4 @@
-Chapter 9: Creating a Brand Personality
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's competitive world, building a strong personal brand requires more than just skills and expertise. It involves crafting a distinct brand personality that resonates with your audience and sets you apart from others in your field. In this chapter, we will explore strategies for developing a compelling brand personality that aligns with your professional goals.
 

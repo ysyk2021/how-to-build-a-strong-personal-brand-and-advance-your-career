@@ -1,5 +1,4 @@
-Chapter 7: Managing Career Setbacks and Challenges
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Life and career are full of ups and downs, and setbacks and challenges are inevitable. In this chapter, we will explore effective strategies for managing career setbacks and challenges, so you can navigate through them with resilience and come out stronger on the other side.
 

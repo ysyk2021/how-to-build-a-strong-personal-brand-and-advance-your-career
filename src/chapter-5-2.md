@@ -1,5 +1,4 @@
-Chapter 5: Optimizing Your Social Media Profiles
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, social media has become an essential tool for building a strong personal brand and advancing your career. It is crucial to optimize your social media profiles to make a lasting impression on potential clients, employers, or collaborators. This chapter will guide you through the process of optimizing your social media profiles for maximum impact.
 

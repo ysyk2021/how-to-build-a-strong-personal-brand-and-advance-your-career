@@ -1,5 +1,4 @@
-Chapter 4: Defining Your Unique Selling Proposition
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to build a strong personal brand and advance your career, it is crucial to define your Unique Selling Proposition (USP). Your USP is what sets you apart from others in your field and communicates the unique value you bring to the table. This chapter will guide you through the process of discovering and articulating your USP effectively.
 

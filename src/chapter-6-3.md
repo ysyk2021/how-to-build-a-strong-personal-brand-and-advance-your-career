@@ -1,5 +1,4 @@
-Chapter 9: Leveraging Your Network for Career Opportunities
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your professional network is a valuable asset when it comes to advancing your career and building a strong personal brand. It can provide you with access to job opportunities, valuable connections, mentorship, and industry insights. In this chapter, we will explore strategies and techniques to help you effectively leverage your network for career opportunities.
 

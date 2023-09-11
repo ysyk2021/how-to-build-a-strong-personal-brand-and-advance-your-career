@@ -1,5 +1,4 @@
-Chapter 1: What Is Personal Branding?
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Personal branding is a strategic approach to building and managing your professional identity. It involves intentionally crafting a unique image and reputation that sets you apart from others in your field. In this chapter, we will explore the concept of personal branding and its significance in advancing your career.
 

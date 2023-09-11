@@ -1,5 +1,4 @@
-Chapter 6: Creating a Professional Online Presence
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital era, establishing a strong online presence is crucial for building a personal brand and advancing your career. Your online presence serves as a virtual representation of your professional identity and can significantly impact your reputation and opportunities. This chapter will guide you through the process of creating a professional online presence that effectively showcases your skills, expertise, and values.
 

@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Building and Maintaining Professional Relationships
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building and maintaining professional relationships is essential for advancing your career and building a strong personal brand. Strong connections can open doors to new opportunities, provide support and mentorship, and enhance your professional reputation. In this chapter, we will explore strategies and techniques to help you build and nurture meaningful professional relationships.
 

@@ -1,5 +1,4 @@
-Chapter 5: Leveraging Your Thought Leadership for Career Growth
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's competitive professional landscape, thought leadership has become an essential component for career growth. It involves establishing yourself as an expert and influencer within your industry or field. This chapter will guide you on how to leverage your thought leadership to advance your career and build a strong personal brand.
 

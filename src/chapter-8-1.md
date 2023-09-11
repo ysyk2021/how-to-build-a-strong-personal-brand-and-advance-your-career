@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Navigating Career Transitions
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Career transitions can be exciting, challenging, and full of opportunities. Whether you are changing industries, roles, or pursuing a new passion, successfully navigating career transitions requires thoughtful planning and strategic action. In this chapter, we will explore effective strategies to help you navigate career transitions and thrive in your new professional journey.
 
